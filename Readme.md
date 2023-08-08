@@ -1,3 +1,3 @@
 # Personal Portfolio 🔥
-> https://tinyurl.com/anaserami
+> https://anas-2003.github.io/anas/
 
